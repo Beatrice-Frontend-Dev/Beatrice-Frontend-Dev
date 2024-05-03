@@ -7,7 +7,6 @@ Twitter/X: https://x.com/sheddyb28?t=fHM0lgfUUsdaEwmqN9CZsw&s=09
 LinkedIn: https://www.linkedin.com/in/beatrice-obioma-247410267?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 Goodluck to me and Y'all
 lets connect.
-
 <!---
 Beatrice-Frontend-Dev/Beatrice-Frontend-Dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
