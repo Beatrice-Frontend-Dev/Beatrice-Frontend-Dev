@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning Javascript
 - 💞️ I’m looking to collaborate on projects that will enhance my growth in tech
  Email: SheddyB28@gmail.com.
+Twitter/X: https://x.com/sheddyb28?t=fHM0lgfUUsdaEwmqN9CZsw&s=09
+LinkedIn: https://www.linkedin.com/in/beatrice-obioma-247410267?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 Goodluck to me and Y'all
 lets connect.
 
